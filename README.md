@@ -6,6 +6,4 @@ First, please watch the video. You can open 'Defender of Gotham - Movie Link'. C
 
 After watching the film, you can review the analysis paper, 'Defender of Gotham - An Analysis.pdf', to get a deeper understanding of the film and the filmmaking process.
 
-This project was completed on 6th January 2023, one day before he left. He watched the film but didn't hang around long enough to read the paper.
-
-He was the reason I fell in love with films, and I am glad I got to show him a creation of mine before he left us.
+Feel free to reach out to me to discuss further.
